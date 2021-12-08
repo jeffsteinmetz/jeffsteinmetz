@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jeffsteinmetz
 - 👀 I’m interested in camping, nature, housing for everyone.
-- 🌱 I’m currently learning DeFi and how to build teams when recruiting is challenging.
+- 🌱 I’m currently learning DeFi and how to build technology teams during a challenging time for recruiting.
 - 💞️ I’m looking to collaborate on ways to help people connect to nature and each other after covid.
 - 📫 How to reach me at https://www.linkedin.com/in/jeffsteinmetz/
 
