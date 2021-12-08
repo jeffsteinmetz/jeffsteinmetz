@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jeffsteinmetz
-- 👀 I’m interested in camping, nature, music production, building technology teams, new ideas and housing for everyone.
+- 👀 I’m interested in camping, nature, music production, building technology teams, and working on projects that have a positive impact on the world.
 - 🌱 I’m currently learning DeFi and how to build technology teams during a challenging time for recruiting.
 - 💞️ I’m looking to collaborate on ways to help people connect to nature and each other after covid.
 - 📫 How to reach me at https://www.linkedin.com/in/jeffsteinmetz/
